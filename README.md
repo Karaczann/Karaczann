@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Karaczann
+- 👀 I’m interested in GAMING
+- 🌱 I’m currently learning EZ 
+- 💞️ I’m looking to collaborate on Tinder
+- 📫 How to reach me Karakan#1788
